@@ -1,12 +1,12 @@
 Ingredients:
 ------------
 
-*2 Avacados
-*2 Tomatoes
-*1 Jalepeno
-*1 Onion
-*1 clove Garlic minced
-*1 Lime
+* 2 Avacados
+* 2 Tomatoes
+* 1 Jalepeno
+* 1 Onion
+* 1 clove Garlic minced
+* 1 Lime
 
 Preparation:
 ------------
