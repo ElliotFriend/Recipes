@@ -7,7 +7,7 @@ Ingredients:
 * 3-5 Jalepenos (seeded)
 * 2-4 Serano Peppers (seeded)
 * 2-4 Chili de Arbol (de-stemmed)
-* 1 280x can Crushed Tomatoes
+* 1 28 oz can Crushed Tomatoes
 * 5-6 Green Onions
 * 1/2-1 bunch Cilantro Leaves (no stems)
 * 1 Lime (juice)
