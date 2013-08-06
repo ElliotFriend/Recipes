@@ -9,7 +9,7 @@ Ingredients:
 * 1 Lime
 
 Directions:
-============
+===========
 
 1. Dice and combine avacados, tomatoes, jalepeno, onion, and garlic in a bowl
 2. Add the juice of one lime to the bowl
